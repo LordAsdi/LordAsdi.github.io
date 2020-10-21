@@ -1,1 +1,1 @@
-# [Mission Review](https://https://lordasdi.github.io/)
+# [Mission Review](https://lordasdi.github.io/missionreview/index.html)
